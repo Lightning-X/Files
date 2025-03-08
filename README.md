@@ -1,5 +1,9 @@
 # Making all public because he started spreading lies and didnt want to hold accountability for it
 
+# RIP LX 2025 🦅 (couldnt find the 🕊️ emoji)
+![image](https://github.com/user-attachments/assets/f137ed20-bcfd-4690-8d85-bf0c86b9bac6)
+
+
 ## Why?
 - To clarify. This is not about me getting my perms removed. I never asked or applied for staff and even left after I got them back
 - The context is him calling me dumb and wrong about a topic a long time ago which I was right about. Which led to me stopping on working on this menu.
